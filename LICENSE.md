@@ -1,4 +1,4 @@
-# 
+# Élite geckoterminal sniper bot flujo de trabajo para Mac OS | Automático geckoterminal sniper bot flujo de trabajo para PC Windows. Con escaneo de arbitraje y detección de nuevos tokens — optimizado para el máximo rendimiento en cada plataforma.
 
 
 
